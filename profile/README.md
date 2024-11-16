@@ -1,4 +1,4 @@
-# Hey guys! So, you've heard about Subway Surfers Unblocked 77, right?  It's like, *the* thing everyone's talking about at school!  I know, I know, school's boring, but this game?  This game is anything but. Let's dive in and explore this awesome unblocked version of Subway Surfers!
+Hey guys! So, you've heard about Subway Surfers Unblocked 77, right?  It's like, *the* thing everyone's talking about at school!  I know, I know, school's boring, but this game?  This game is anything but. Let's dive in and explore this awesome unblocked version of Subway Surfers!
 
 #### [✅✅🔴🔴👉👉 UNBLOCKED GAMES PLAY HERE ✅✅🔴🔴👉👉](https://topstoryindia.com)
 
